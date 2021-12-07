@@ -1,4 +1,4 @@
-# [Név]
+# Wolf Péter
 
 ## Hogyan kezdj neki?
 
